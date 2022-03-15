@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @theshoe1
+- 👋 Hi, I’m Stephanie Xu.
 - 👀 I’m interested in investment banking.
 - 🌱 I’m currently studying Business Administration and Statistics.
 - ✨ fun fact: I was a 112 TA @ CMU :-)
